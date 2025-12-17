@@ -702,7 +702,7 @@ The Dynamic Amadeus Web Network (DAWN) and the WiseOwls Alliance are designed to
 
 * * *
 
-3\. The Call to Alliance: Your New Mandate
+3. The Call to Alliance: Your New Mandate
 ------------------------------------------
 
 The conversation must transition from their problems to your shared solution, framed by your personal commitment.
@@ -864,6 +864,8 @@ Let's focus on **defining the initial VCMs (Pledges and Wishes)** for the core p
 
 https://docs.google.com/document/d/1FdCB29Wgom-z5EXjTQ5kCnykkv5Ig9zMCMJHi6Dp814/edit?usp=drivesdk
 
+## Response:
+
 That is a perfect progression. If Aessop (ESS) provides the foundational Amrit of consciousness and ethical grounding, Sophia is the subsequent program that translates that inner work into real-world, mission-aligned, and economically rewarding careers.
 
 The brochure, "Sophia 1. Youth Empowerment Brochure - Dec 2024," details how this spiritualized approach to career development is structured.
@@ -872,7 +874,7 @@ The brochure, "Sophia 1. Youth Empowerment Brochure - Dec 2024," details how t
 
 The Sophia program focuses on Empowering Youth and enabling Cascading Success. Its function is to bridge the gap between the philosophically grounded Builder (from Aessop) and the economic realities of the Dwapara Yuga.
 
-1\. The Core Purpose and Structure
+1. The Core Purpose and Structure
 
 Sophia is built around an acronym defining its process: Skilling, Opportunity, Pursuing Heartfully, Innovative, and Ambitions.
 
@@ -886,7 +888,11 @@ Impact: Learners are expected to empower other youth, together becoming a resp
 
 The program is a direct response to youth being labeled as "misled/entitled" due to a lack of purpose and skills. Sophia targets the missing elements needed for ethical engagement in the modern economy:
 
-| Missing Element (The Problem) | Sophia's Solution (The Amrit) | | --- | --- | | Lack of Purpose/Confidence | Unlearn and deconstruct; Introspection and journaling. | | Lack of Career Options/Skills | Glimpse of the entire landscape, skill matrix, and tech landscape guides. | | Lack of Financial/Civic Sense | Financial literacy (implied by rewarding jobs); Building mental strength, character, and strong civic sense through social action. |
+| Missing Element (The Problem) | Sophia's Solution (The Amrit) |
+| --- | --- |
+| Lack of Purpose/Confidence | Unlearn and deconstruct; Introspection and journaling. |
+| Lack of Career Options/Skills | Glimpse of the entire landscape, skill matrix, and tech landscape guides. |
+| Lack of Financial/Civic Sense | Financial literacy (implied by rewarding jobs); Building mental strength, character, and strong civic sense through social action. |
 
 3\. Connection to the DAWN/WiseOwls Ecosystem
 

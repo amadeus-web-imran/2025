@@ -17,7 +17,7 @@ Link: [https://gemini.google.com/app/687c5c6b84fcd0cb](https://gemini.google.com
 
 ## A plan for a decentralized learning ecosystem inspired by guilds, where learning is driven by curiosity, mentorship, and trust.
 
-DIV|LARGELIST
+DIV-LARGELIST
 
 1. Vision for Learning Ecosystems<br />
 2. Amadeusweb.world and Biblios<br />
