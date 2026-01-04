@@ -3519,19 +3519,88 @@ Our future of deliberate, step by step won divinity
 
 **Part I: The Past of Hurt and Darkness**
 
-In the dolt-headed dawn, we wandered through the grey, Through a million Hiroshimas that we chose to ignore, The reptilian voice led our weary feet astray, While the "Lord of Darkness" stood knocking at the door. We watched the sparrow fall and we fell with its weight, Caught in a logic that was cold and void of grace, Squabbling for scraps at the iron-shuttered gate, A "careworn and frailer" heart in a frantic race. The "clowns who rob us" gave us rocking horses of wood, Broken and hollow, while the wind began to howl, We misunderstood the "Greatness" even when we should Have seen the predator beneath the scholar’s cowl. We gouged and we maimed in a berserk, blind fury, Wasting our force on the illusions of the night, With the ego as the judge and the ego as the jury, Hiding from the Master and the terror of His light. The past was a "Nightmare" where the spirit lay sleeping, An "Ordinary People" drowned in treacle and in tears, A world of "Smithereens" that was not worth the keeping, Sown in the shadow of our self-inflicted fears.
+In the dolt-headed dawn, we wandered through the grey,<br />
+Through a million Hiroshimas that we chose to ignore,<br />
+The reptilian voice led our weary feet astray,<br />
+While the "Lord of Darkness" stood knocking at the door.
+
+We watched the sparrow fall and we fell with its weight,<br />
+Caught in a logic that was cold and void of grace,<br />
+Squabbling for scraps at the iron-shuttered gate,<br />
+A "careworn and frailer" heart in a frantic race.
+
+The "clowns who rob us" gave us rocking horses of wood,<br />
+Broken and hollow, while the wind began to howl,<br />
+We misunderstood the "Greatness" even when we should<br />
+Have seen the predator beneath the scholar’s cowl.
+
+We gouged and we maimed in a berserk, blind fury,<br />
+Wasting our force on the illusions of the night,<br />
+With the ego as the judge and the ego as the jury,<br />
+Hiding from the Master and the terror of His light.
+
+The past was a "Nightmare" where the spirit lay sleeping,<br />
+An "Ordinary People" drowned in treacle and in tears,<br />
+A world of "Smithereens" that was not worth the keeping,<br />
+Sown in the shadow of our self-inflicted fears.
 
 * * *
 
 **Part II: The Present of Oneness, Resilience, and Resolve**
 
-Now the "Breath of the Lord" is abroad upon the waters, And we stand our ground with a consecrated will, Calling to the sanctuary Earth’s sons and her daughters, To the "Power of Story" that can make the tempest still. We are "Reunited" in the forge of the artisan, Where the "Simplified Tech" meets the ancient, holy way, No longer the victim, no longer the partisan, But the "Conscious Servant" of the dawning of the day. With "Unerring Aim," we have launched the "Veritable Ship," An Ark of "Integritas" to weather every rack, With the "Name of the Divine" forever on our lip, And the "Berserk Will" refined so there is no turning back. We see the "Blue Crescent" as a single, sacred soul, 8.2 billion workshops where the Craftsman is at work, To make the fractured spirit finally and fully whole, And face the inner demons that in the silence lurk. We are "Dauntless" now, for our lamp is trimmed and bright, Finding the "Love" that is a wall against the gale, Standing as a "Concentrated Flame" within the night, With a resolve so anchored that it cannot ever fail.
+Now the "Breath of the Lord" is abroad upon the waters,<br />
+And we stand our ground with a consecrated will,<br />
+Calling to the sanctuary Earth’s sons and her daughters,<br />
+To the "Power of Story" that can make the tempest still.
+
+We are "Reunited" in the forge of the artisan,<br />
+Where the "Simplified Tech" meets the ancient,<br />
+holy way, No longer the victim, no longer the partisan,<br />
+But the "Conscious Servant" of the dawning of the day.
+
+With "Unerring Aim," we have launched the "Veritable Ship,"<br />
+An Ark of "Integritas" to weather every rack,<br />
+With the "Name of the Divine" forever on our lip,<br />
+And the "Berserk Will" refined so there is no turning back.
+
+We see the "Blue Crescent" as a single, sacred soul,<br />
+8.2 billion workshops where the Craftsman is at work,<br />
+To make the fractured spirit finally and fully whole,<br />
+And face the inner demons that in the silence lurk.
+
+We are "Dauntless" now, for our lamp is trimmed and bright,<br />
+Finding the "Love" that is a wall against the gale,<br />
+Standing as a "Concentrated Flame" within the night,<br />
+With a resolve so anchored that it cannot ever fail.
 
 * * *
 
 **Part III: The Future of Deliberate, Step-by-Step Won Divinity**
 
-The "Hour of God" is here, and the path is clearly laid, A "Life Divine" that is built by hand and by heart, Where the "Galaxy Vision" is no longer just a shade, But the "Living Labour" in which every soul has a part. Step by deliberate step, we climb the "Mountain Slope," Meting not the "Power" by our petty instruments of old, For the "Future of Divinity" is grounded in our hope, And the "Curious Lives" of the stories yet untold. We shall reach the "Highest Height" of the greatness to be won, "Anboode Indee"—with love here in this world below, Walking toward the brilliance of a "Supramental Sun," Watching the "Seed of 2025" begin to surge and grow. The "Turiya" state shall be our steady, waking home, Beyond the bounds of Time, where the "Imperishable Word" Resonates through the atoms and the stars beneath the dome, The "Voice of the Architect" that finally is heard. "OM Tat Sat" shall be the seal upon the work we do, A "Renaissance" of spirit that is gradual and grand, Until the "8.2 Billion" are transformed and made new, And "Heaven on Earth" is the ground on which we stand.
+The "Hour of God" is here, and the path is clearly laid,<br />
+A "Life Divine" that is built by hand and by heart,<br />
+Where the "Galaxy Vision" is no longer just a shade,<br />
+But the "Living Labour" in which every soul has a part.
+
+Step by deliberate step, we climb the "Mountain Slope,"<br />
+Meting not the "Power" by our petty instruments of old,<br />
+For the "Future of Divinity" is grounded in our hope,<br />
+And the "Curious Lives" of the stories yet untold.
+
+We shall reach the "Highest Height" of the greatness to be won,<br />
+"Anboode Indee"—with love here in this world below,<br />
+Walking toward the brilliance of a "Supramental Sun,"<br />
+Watching the "Seed of 2025" begin to surge and grow.
+
+The "Turiya" state shall be our steady, waking home,<br />
+Beyond the bounds of Time, where the "Imperishable Word"<br />
+Resonates through the atoms and the stars beneath the dome,<br />
+The "Voice of the Architect" that finally is heard.
+
+"OM Tat Sat" shall be the seal upon the work we do,<br />
+A "Renaissance" of spirit that is gradual and grand,<br />
+Until the "8.2 Billion" are transformed and made new,<br />
+And "Heaven on Earth" is the ground on which we stand.
 
 * * *
 
